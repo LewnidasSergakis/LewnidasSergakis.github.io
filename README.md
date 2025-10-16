@@ -1,2 +1,2 @@
 # LewnidasSergakis.github.io
-Hellow! :)
+Hello! :)
